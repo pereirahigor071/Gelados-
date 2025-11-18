@@ -1,2 +1,0 @@
-# Gelados-
-Projeto do Higor
